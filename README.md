@@ -3,7 +3,7 @@
 
  ✦    
  
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair&weight=900&size=25&duration=4980&pause=1000&color=C0E1C5&width=435&lines=the+power+to+share+eternal+life+to+all+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair&weight=900&size=25&duration=4980&pause=1000&color=C0E1C5&width=435&lines=the+power+to+share+eternal+life+to+all+.)](https://git.io/typing-svg) 
 
 $\color{#7dccb9}{\textsf{my tone may come off rude or harsh . '}}$
 
